@@ -1,4 +1,4 @@
-Shattered Gang Script Archives
+#Shattered Gang Script Archives
 
-> Shattered Gang Script Archives
+> Sometimes i post something
 
