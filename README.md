@@ -1,2 +1,2 @@
-# Shattered-Gang-Archives
-# Архив скриптов
+# Shattered Gang Script Archives
+
